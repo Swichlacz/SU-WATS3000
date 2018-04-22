@@ -1,6 +1,6 @@
-A Party Of Lovers
+#KristyLynn93!
 
-    By John Keats
+A Party Of Lovers
 
 
 
@@ -27,3 +27,5 @@ A Party Of Lovers
     Where might my tailor live?    I say again
     I cannot tell, let me no more be teaz'd,
     He lives in Wapping, might live where he pleas'd.'
+
+http://www.public-domain-poetry.com/john-keats/party-of-lovers-6247
