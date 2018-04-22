@@ -1,17 +1,16 @@
-#KristyLynn93!
+## :revolving_hearts:**_A Party Of Lovers_**:revolving_hearts:
 
-A Party Of Lovers
-
-
-
-    Pensive they sit, and roll their languid eyes,
+ *By John Keats*
+ 
+ 
+    Pensive they sit, and roll their *languid* eyes,
     Nibble their toast, and cool their tea with sighs,
     Or else forget the purpose of the night,
     Forget their tea, forget their appetite.
     See with cross'd arms they sit, ah! happy crew,
     The fire is going out and no one rings
     For coals, and therefore no coals Betty brings.
-    A fly is in the milk-pot, must he die
+    A fly is in the milk-pot, must he **_die**_
     By a humane society?
     No, no; there Mr. Werter takes his spoon,
     Inserts it, dips the handle, and lo! soon
@@ -25,7 +24,9 @@ A Party Of Lovers
     Where may your tailor live?'    'I may not tell.
     O pardon me, I'm absent now and then.
     Where might my tailor live?    I say again
-    I cannot tell, let me no more be teaz'd,
-    He lives in Wapping, might live where he pleas'd.'
+    I cannot tell, let me no more be _teaz'd_,
+    He lives in Wapping, might live where he _pleas'd_.'
 
 http://www.public-domain-poetry.com/john-keats/party-of-lovers-6247
+
+##### KristyLynn93!
